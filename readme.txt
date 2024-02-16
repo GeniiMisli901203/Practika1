@@ -1,1 +1,2 @@
 Kak dela????
+normalno
